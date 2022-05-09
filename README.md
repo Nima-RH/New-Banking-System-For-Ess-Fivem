@@ -2,6 +2,6 @@
 
 Script Edited By Nima#8585
 
-Dar Soorat Hargone Moshkel Be ID Discord Bande PM Bedid : ID = UnKnown Cat#7123
+Dar Soorat Hargone Moshkel Be ID Discord Bande PM Bedid : ID = Nima#8585
 
 <a href="https://media.discordapp.net/attachments/897346588224151593/913716985739747348/unknown_1.png" target="_blank"><img src="https://media.discordapp.net/attachments/897346588224151593/913716985739747348/unknown_1.png" border="0" alt="آپلود عکس" /></a>
